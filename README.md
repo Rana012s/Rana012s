@@ -12,10 +12,10 @@ Hɪ I, ᴍ Aʙʜɪ Rᴀɴᴀ🥀<br>I ʟᴏᴠᴇ ᴄᴏᴅɪɴɢ 💖<br>Sᴇʟ
 <a href="https://github.com/Rana012s" target="_blank">
 <img src="https://img.shields.io/badge/github-%2324292e.svg?&style=for-the-badge&logo=github&logoColor=white" alt="github" style="margin-bottom: 5px;" />
 </a>
-<a href="https://t.me/Rana012s" target="_blank">
+<a href="https://t.me/RANA_YOUR_FATHER" target="_blank">
 <img src="https://img.shields.io/badge/telegram-%2324292e.svg?&style=for-the-badge&logo=telegram&logoColor=white" alt="telegram" style="margin-bottom: 5px;" />
 </a>
-<a href="https://t.me/Rana012s" target="_blank">
+<a href="https://t.me/ll_wtf_rana_ll" target="_blank">
 <img src="https://img.shields.io/badge/Insta-%2324292e.svg?&style=for-the-badge&logo=Instagram&logoColor=white" alt="instagram" style="margin-bottom: 5px;" />
 </a>
 
